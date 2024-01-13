@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on github
 - 🤔 I’m looking for help with github
 - 💬 Ask me about web development
-- 📫 How to reach me: Village Reotipur
+- 📫 How to reach me: Village Reotipur ,District Ghazipur
 - 😄 Pronouns: Babua 
 - ⚡ Fun fact: nothing 
 
